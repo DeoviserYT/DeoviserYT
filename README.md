@@ -2,3 +2,4 @@
 - 👀 I’m interested in video games like Minecraft, Fortnite and Roblox
 - 🌱 I’m currently learning Skript
 - 📫 How to reach me: Add the user DeoviserYT on the Minecraft mod "Essential Mod"
+- 🎮 My favourite Minecraft server might be minefort.com
